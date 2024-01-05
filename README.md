@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @amirhirbod
+- 👀 I’m interested in Business Management and Content
+- 🌱 I’m currently learning Digital Marketing
+- 💞️ I’m looking to collaborate on Content Creation
+- 📫 How to reach me : amirhossein.hirbod@gmail.com / telegram: @amirhirbodvash
